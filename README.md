@@ -1,2 +1,2 @@
 # uniqueloader
-çık git buradan ananı tokatlarım
+wasted
